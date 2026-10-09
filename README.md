@@ -1,4 +1,4 @@
-👋 Hi, I'm Mohamed Suhaib Hussain
+👋 **Hi, I'm Mohamed Suhaib Hussain**
 
 Product Manager by profession. Problem Solver by mindset.
 
