@@ -1,6 +1,6 @@
 **👋 Hi, I'm Mohamed Suhaib Hussain**
 
-**Product Manager by profession. Builder by mindset. 🚀**
+**Product Manager by profession. Problem Solver by nature. 🚀**
 
 🤖 Exploring AI Agents, MCP & intelligent automation
 
