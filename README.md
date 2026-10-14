@@ -6,7 +6,7 @@
 
 🧠 Passionate about Product Strategy & Product Discovery
 
-🛒 Building better Digital & eCommerce experiences
+🛒 Building better Digital & User experiences
 
 🛠️ Turning ideas → Prototypes → Products
 
